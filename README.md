@@ -20,3 +20,5 @@ https://transatlanticrelations.org/wp-content/uploads/2019/10/19-Palazhchenko.pd
 https://archive.org/details/TimeUSMeddlingOnRussia
 
 https://www.thenation.com/article/world/harvard-boys-do-russia/
+
+https://www.instagram.com/p/C4nkHJIOrTo/?igsh=MzRlODBiNWFlZA==
